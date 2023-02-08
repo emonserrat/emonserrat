@@ -8,6 +8,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with DevOps
 - 💬 Ask me about Solutions IT
 - 📫 How to reach me: emimon@gmail.com
-- 😄 Pronouns: EMI
+- 😄 Pronouns: EMI-2
 - ⚡ Fun fact: ...
 -->
