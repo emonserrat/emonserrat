@@ -8,4 +8,4 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with DevOps
 - 💬 Ask me about Cars, F1 and Asados ARG
 - 😄 Pronouns: EMI
-- ⚡ Fun fact: Karts & Futbol
+- ⚡ Fun fact: MOTOR, Karts, F1, Futbol
